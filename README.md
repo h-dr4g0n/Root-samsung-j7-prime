@@ -3,3 +3,4 @@
 Root j7 prime
 download rom NovaOS and Oxygen kernel : https://drive.google.com/folderview?id=1iykfQHl4BBtsQmyEY4nPvUODte-K9Jq3 /
 >>Video: https://youtu.be/1Ev3IwzYP-8
+Congratulations,Your QQ number is:3138605297
